@@ -5,6 +5,6 @@
 
 
 ## Education
-* MINSK STATE TECHNOLOGICAL COLLEGE
-* Belarusian State Pedagogical University named after Maxim Tank
+* MINSK STATE TECHNOLOGICAL COLLEGE (2008-2012)
+* Belarusian State Pedagogical University named after Maxim Tank (2013-2018)
   
